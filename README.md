@@ -1,2 +1,0 @@
-# Curriculo
-Meu Currículo
